@@ -10,7 +10,7 @@
 ### Personal Interests
 
 - **My Family**
-  - My lovely wife and I enjoy living in Texas.
+  - My lovely wife and I enjoy living in Austin, TX.
   - Proud owner of two lovely golden retrievers. They bring joy and energy to my life every day.
 
 - **Fitness Enthusiast**
